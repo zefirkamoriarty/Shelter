@@ -1,1 +1,1 @@
-https://zefirkamoriarty.github.io/Shelter/
+https://zefirkamoriarty.github.io/shelter/
